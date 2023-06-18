@@ -41,7 +41,7 @@
 ## Experience
 
 
-- 👨‍💻 **Sales Admin Executive **\
+- 👨‍💻 **Sales Admin Executive**\
 📆 2022 - Present\
 📍 **Royal Interiors/Fabrics Pte Ltd** - Singapore
 
